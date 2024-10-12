@@ -6,7 +6,7 @@
 * You may not copy, modify, steal, skid, or recreate any of the code inside this file.
 * You may not under any circumstance republish any code from this file as your own.
 * 
-* ALL TERMS STATED IN THE LINK BELOW APPLY ASWELL
+* All 10000000000000000000000000000000000000000000000000000000000 blooket bucks are (added)
 * https://github.com/05Konz/Blooket-Cheats/blob/main/LICENSE
 */
 
